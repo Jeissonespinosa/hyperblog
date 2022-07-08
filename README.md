@@ -9,5 +9,8 @@ Un blog increible para el curso de git y github de platzi
 * Mejoro un 1% cada dia
 * Soy muy disciplinado
 * Aprendo todos los dias
+* ha si estes cayendo tienes que tener claro que puedes salir de la pornografía, recuerda que este es tu objetivo del año. perdonate pero toma acción masiva, da la milla extra y sal de eso.
+
+una mejor vida te espera junto a retos fascinantes, personas increibles y santi
 
 Y como una amable recordatorio por que seguramente lo estar leyendo unos años mas adelante. Eres un crack Felicidades vas muy bien, disfruta el proceso
